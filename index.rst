@@ -96,8 +96,7 @@ I will also usually be around before or after class, in addition to being around
 If it looks like we need to schedule some more formal sessions for additional info, we will.
 
 It's always a good idea to make an appointment to see me, even during my
-purported office hours, because I often have to run around campus like a
-maniac doing strange, computer-music stuff.
+purported office hours.
 
 ----
 
